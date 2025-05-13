@@ -2,6 +2,9 @@
 
 **Looking for a fun, fast-paced baseball game to kill time?** Enter the world of **Doodle Baseball Unblocked**, a legendary browser game that mixes **arcade-style action** with **hyper-casual gameplay**. Whether you're a die-hard fan of America’s favorite pastime or just want to swing a virtual bat, **Google Doodle Baseball** is an **epic choice** that delivers **unlimited fun**!
 
+## <a href="https://1kb.link/5jrBLc">👉 Play 
+Doodle Baseball Unblocked Games NOW 👈</a>
+
 ---
 
 ### 🔓 What is Doodle Baseball Unblocked?
